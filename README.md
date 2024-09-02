@@ -1,0 +1,1 @@
+# Thaiticketmajor-script
